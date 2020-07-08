@@ -24,14 +24,15 @@ Description.
 ```
 i don't wanna know what's high
 i don't wanna know what i got inside
-
 make your choice through the voice
-
-that's screaming loud - make it right
-
-already, keep your life so steady through the curse of golden flood
+that's screaming loud - make it right already
+keep your life so steady 
+through the curse of golden flood
 hundred drowning souls in external life
 little bit of toughest arcs
+that's allright, that's allright ya
+
+
 
 ```
 
