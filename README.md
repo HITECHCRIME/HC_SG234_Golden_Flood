@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Golden FLood
 
 **Listen now:** 
 
@@ -22,7 +22,16 @@ Description.
 ## Lyrics
 
 ```
+i don't wanna know what's high
+i don't know wanna know what i got inside
 
+make your choice through the voice
+
+that's screaming loud - make it right
+
+already, keep your life so steady through the cursed golden flood
+hundred drowning souls in external life
+little bit of toughest arcs
 
 ```
 
