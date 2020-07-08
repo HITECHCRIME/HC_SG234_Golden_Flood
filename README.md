@@ -23,7 +23,7 @@ Description.
 
 ```
 i don't wanna know what's high
-i don't know wanna know what i got inside
+i don't wanna know what i got inside
 
 make your choice through the voice
 
