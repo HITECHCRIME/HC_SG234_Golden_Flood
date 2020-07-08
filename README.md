@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Golden FLood
+# MOTHNODE_ Golden Flood
 
 **Listen now:** 
 
@@ -29,7 +29,7 @@ make your choice through the voice
 
 that's screaming loud - make it right
 
-already, keep your life so steady through the cursed golden flood
+already, keep your life so steady through the curse of golden flood
 hundred drowning souls in external life
 little bit of toughest arcs
 
