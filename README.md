@@ -32,6 +32,16 @@ hundred drowning souls in external life
 little bit of toughest arcs
 that's allright, that's allright ya
 
+make it through the night
+make it through the night
+that's what i tell myself 
+when last of the lights dies every day
+sun will come again, i swear
+flooding retinas like morning prayers
+to the gods of broken dawn
+we feel everything, circling with our doubts,
+what happened in the past cannot be undone
+
 
 
 ```
