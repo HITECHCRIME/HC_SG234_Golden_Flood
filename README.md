@@ -42,6 +42,9 @@ to the gods of broken dawn
 we feel everything, circling with our doubts,
 what happened in the past cannot be undone
 
+we feel everything, circling with our doubts,
+what happened in the past can never be undone
+
 
 
 ```
