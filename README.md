@@ -46,7 +46,13 @@ we feel everything, circling with our doubts,
 what happened in the past can never be undone
 
 count through the pain it will go away, soon or later
-does it matter if you stay, local tempers just fade 
+does it matter if you stay, 
+old tempers used to fade with the rising rays of warmth
+basking in the glory of ancient stories still foretold
+
+
+
+stil foretold anew newest context for your soul
 
 
 ```
