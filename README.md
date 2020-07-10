@@ -45,6 +45,8 @@ what happened in the past cannot be undone
 we feel everything, circling with our doubts,
 what happened in the past can never be undone
 
+count through the pain it will go away, soon or later
+does it matter if you stay, local tempers just fade 
 
 
 ```
