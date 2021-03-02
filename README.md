@@ -5,8 +5,8 @@
 **Listen now:** 
 
 ## Project Data
-
-Description.
+https://www.youtube.com/watch?v=NpUD29T91m0
+FREE | BURNTHEWITCH - $UICIDEBOY$ TYPE BEAT
 
 > **Title:**  / **Featuring:** 
 
@@ -22,6 +22,9 @@ Description.
 ## Lyrics
 
 ```
+hitech crime
+hitech crime ya
+
 i don't wanna know what's high
 i don't wanna know what i got inside
 make your choice through the voice
@@ -45,10 +48,11 @@ what happened in the past cannot be undone
 we feel everything, circling with our doubts,
 what happened in the past can never be undone
 
-count through the pain it will go away, soon or later
-does it matter if you stay, 
-old tempers used to fade with the rising rays of warmth
+count through the pain it will go away
+sooner or later does it matter if you stay 
+old tempers used to fade with rising rays of warmth
 basking in the glory of ancient stories still foretold
+past year i've grown so old i've grown so old
 
 
 
